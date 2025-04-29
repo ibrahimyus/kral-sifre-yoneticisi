@@ -1,0 +1,1 @@
+Yukardan indiricen kral
