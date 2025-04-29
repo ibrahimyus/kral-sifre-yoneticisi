@@ -1,1 +1,2 @@
-Yukardan indiricen kral
+Yukardan indiricen kral rar olan kral
+
